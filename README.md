@@ -1,1 +1,2 @@
 Jonathan Louangrath
+louangrj@oregonstate.edu
